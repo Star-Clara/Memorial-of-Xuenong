@@ -1,4 +1,7 @@
-# 2024学农纪念仓库～
+<div align="center">
+
+# 2024学农纪念～
+</div>
 
 ***
 
@@ -19,11 +22,16 @@
 
 （多线程🉐充电插头
 
-![IMG_1090](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/1309757d-49c8-420c-bc30-d5ab99ed7f31)
+![IMG_0062|281x500](upload://9MLVbLU19h5StrY8MIYXzGq9FOZ.jpeg)
 
 ### 下午 采访农户
 
 > **注意事项:**
 懂得礼貌，能帮忙的要帮忙尊重农户，不得言语不敬不能乱跑
-注意我们的任务，工作不能代谢
+注意我们的任务，工作不能懈怠
 **5: 10** 登车
+
+![IMG_0063|375x500](upload://4RV1c8VXKHiY0zD2L9dS1torb5X.jpeg)
+
+**在路上拍一张～**
+![IMG_0064|375x500](upload://p5PHIDeYuM288VDcprfkMiQ6tCF.jpeg)
