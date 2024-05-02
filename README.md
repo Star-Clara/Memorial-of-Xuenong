@@ -57,3 +57,8 @@
 （卑微的我来帮忙剥豆子啦💦
 
 ![7bb3eaa50270b3e9849b4707bb2543f358cecc72_2_750x1000](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/3750db27-b27c-4976-8f14-fb52b1388c51)
+### 晚上 看电影～
+
+讲述的是西庄的发展
+观影感觉很有戏剧性 而且氛围很好
+![IMG_1102](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/5fed1d81-6bee-4583-9a8f-bef483e0751b)
