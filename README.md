@@ -21,8 +21,7 @@
 > **13：30** *开始下午的活动，中午就午休养精蓄锐吧～*
 
 （多线程🉐充电插头
-
-![IMG_0062|281x500](upload://9MLVbLU19h5StrY8MIYXzGq9FOZ.jpeg)
+![4496f8a450aff7cc308858a433e29ee352d3d255_2_562x1000](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/d72d3a27-d9cf-44bb-ae85-5307e25bc368)
 
 ### 下午 采访农户
 
@@ -30,8 +29,8 @@
 懂得礼貌，能帮忙的要帮忙尊重农户，不得言语不敬不能乱跑
 注意我们的任务，工作不能懈怠
 **5: 10** 登车
-
-![IMG_0063|375x500](upload://4RV1c8VXKHiY0zD2L9dS1torb5X.jpeg)
+![222109ee8148606bcf0aeabab65534d34214a4e5_2_750x1000](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/85751fee-05e9-4415-a1fa-672cf25da884)
 
 **在路上拍一张～**
-![IMG_0064|375x500](upload://p5PHIDeYuM288VDcprfkMiQ6tCF.jpeg)
+
+![afdf2c8357e9d844214307a13f8963cf2ea706a1_2_750x1000](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/d6123e34-0bc2-428f-8148-a80dc643d830)
