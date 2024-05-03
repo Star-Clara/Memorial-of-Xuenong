@@ -62,3 +62,61 @@
 讲述的是西庄的发展
 观影感觉很有戏剧性 而且氛围很好
 ![IMG_1102](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/5fed1d81-6bee-4583-9a8f-bef483e0751b)
+
+
+## Day 2，5月3日 星期五
+### 清晨 早饭 晨跑
+
+
+``` text
+**早饭食谱：**
+豇豆包 x1 
+油条 x1
+鸡蛋 x1
+萝卜干 小菜少许
+```
+
+
+``` text![IMG_0116](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/fb522a48-bf4c-4704-9e11-99852a513071)
+![IMG_0105](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/bffe7ae8-40aa-45c6-b00e-65c4542099a7)
+![IMG_0107](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/1c79df72-44e7-4117-9236-0ad040ffc239)
+
+**晨跑** 
+400m标准体育场，两圈
+```
+
+### 上午 春茶采收
+**出发咯！**
+![2bded6da28bf909bc1c096c152cdae2a0de0d74f_2_750x1000](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/befa4924-bab2-42e8-b0fa-1f49ea212cbf)
+
+早上有点小风，吹起来很舒服～
+![72a1f461d81aab0ee8fca03f57bd10aaf004a122_2_1332x1000](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/0e22455f-6c67-4ac2-808e-34cc6cede923)
+![1735d81a77f8c8158cd5f363c2442d99b1960491_2_750x1000](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/54cc5040-e172-4f67-947f-7767ef88c413)
+
+
+**抵达～**
+
+> 记得要采一叶一芽哦 越嫩越好！
+
+> 采来的茶叶不能碰水哦，不然就报废啦
+
+``` text
+采茶时 需要用手 轻轻地 揪茶叶
+不要用指甲掐哦
+否则指甲里的汗液会氧化茶叶中的有效成分 导致质量下降哦
+——————
+成品茶需要用70-80摄氏度的水泡一遍，需要倒掉
+不能用刚煮沸的开水哦
+否则也会导致口味受到损失
+```
+![IMG_0120](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/5a7cd3e6-29b7-4139-a8d8-93b9db2faf87)
+
+
+
+**收获满满～**
+
+还有虫子！
+![IMG_0119](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/647823d1-1378-42b7-a4f7-c75889153fe5)
+![IMG_0124](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/c499fa67-5289-49a8-ae3f-84dfc58f4c3a)
+
+真是生命力旺盛呢（
