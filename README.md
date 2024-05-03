@@ -117,3 +117,44 @@
 ![IMG_0124](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/c499fa67-5289-49a8-ae3f-84dfc58f4c3a)
 
 真是生命力旺盛呢（
+
+### 下午 翻地
+来啦
+![JPEG image](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/702dbaab-fa95-4388-a37f-dc2455ed8936)
+![JPEG image](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/ffcb2c70-01eb-43bb-8b09-4b83379ada4d)
+![JPEG image](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/1ddb7d6d-06d0-40fa-95cc-0ca44a5aa114)
+
+
+这里就是桃子果园啦
+![JPEG image](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/db1f72c2-e5db-4f7a-b267-baa0c4bf99a6)
+
+获得道具：
+![JPEG image](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/49013e8a-e943-42f8-a3bf-653a5a30c278)
+
+
+> 注意事项：
+1. 不要用脚反复蹬铁锹
+2. 掺入土中后，前后摇动
+3. 不用大力将土翻到远处
+![JPEG image](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/4ccbcaa0-68de-4a94-942f-b11df422f307)
+![JPEG image](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/d930089b-b56a-4432-aab3-eb8fdbbf487f)
+![JPEG image](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/f123d35f-6924-4db2-af3e-7bb4b37e5530)
+![JPEG image](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/d7052ec3-77e9-47b7-96ae-9736a025249d)
+
+锄地成果
+
+### 晚上 篝火晚会！！
+![JPEG image](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/31849221-98b5-4540-a154-68aacd23f415)
+
+由年级主任点燃篝火！
+![JPEG image](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/b4747180-f8e3-4f5d-912a-9f4b0858e1a9)
+![JPEG image](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/cfd5a5bd-74d5-4e3e-8ba2-72ec8ed37041)
+![JPEG image](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/860e8e26-372f-4468-a4b0-80f2afcbfa9a)
+![JPEG image](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/48bee839-62f4-473b-857f-93550b67411d)
+![JPEG image](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/404fd0a9-d6c8-4655-96a9-e24f94c53b62)
+![JPEG image](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/8ad61805-2390-4e36-b318-36acda1671f4)
+
+
+> 歌舞应有尽有～ 同学们都有认真准备哦
+
+**最后的闪光灯也有我的一份！！**
