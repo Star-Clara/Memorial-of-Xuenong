@@ -77,10 +77,7 @@
 ```
 
 
-``` text![IMG_0116](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/fb522a48-bf4c-4704-9e11-99852a513071)
-![IMG_0105](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/bffe7ae8-40aa-45c6-b00e-65c4542099a7)
-![IMG_0107](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/1c79df72-44e7-4117-9236-0ad040ffc239)
-
+``` text
 **晨跑** 
 400m标准体育场，两圈
 ```
