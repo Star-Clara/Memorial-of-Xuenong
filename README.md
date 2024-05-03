@@ -158,3 +158,10 @@
 > 歌舞应有尽有～ 同学们都有认真准备哦
 
 **最后的闪光灯也有我的一份！！**
+
+**再补两张！新宝岛和爱你！**
+
+![IMG_1164](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/447f91bc-1f95-46eb-a026-1a7d03dd996b)
+![IMG_1163](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/69411d2c-dd5d-4ca6-be5a-58bc1319122e)
+
+**简直无敌！！**
