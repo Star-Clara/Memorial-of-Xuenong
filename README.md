@@ -165,3 +165,14 @@
 ![IMG_1163](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/69411d2c-dd5d-4ca6-be5a-58bc1319122e)
 
 **简直无敌！！**
+
+## Day 3，5月4日 星期六
+### 上午 陶艺制作
+5分钟的教学 带来的是永远的怀恋
+![C286E9A416F06F131ACE3293D7FEAA9F](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/e82ff04d-d6c6-4e85-8afb-3eb225aa629e)
+![99D1440778B4B0B45F2D121E5625FFA9](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/319b5680-203c-4feb-a332-e86f5dc3e1f1)
+![IMG_1200](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/c9ec3748-b6e4-4a9a-b87c-3390b99debc7)
+
+同学们的艺术品层出不穷
+新型艺术诞生
+真是 **太艺术** 辣！
