@@ -176,3 +176,9 @@
 同学们的艺术品层出不穷
 新型艺术诞生
 真是 **太艺术** 辣！
+
+### 最后的学农汇报
+**乡土中国才是最好的实践课！**
+![IMG_0153](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/23cfed41-a387-4bd8-94f4-ffbf255d0150)
+![IMG_0152](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/5c94311c-58b8-4aba-b106-8cb002ce30e4)
+
