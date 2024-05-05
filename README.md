@@ -179,6 +179,20 @@
 
 ### 最后的学农汇报
 **乡土中国才是最好的实践课！**
-![IMG_0153](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/23cfed41-a387-4bd8-94f4-ffbf255d0150)
-![IMG_0152](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/5c94311c-58b8-4aba-b106-8cb002ce30e4)
 
+![IMG_0150](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/ee38126a-7a56-41ef-82a9-bbdb1a72d1df)
+![IMG_0152](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/0499e285-57f5-4370-acb8-d69dad63312b)
+![IMG_1212](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/ace9b990-4d20-4188-9b8b-abf0f52888fa)
+
+
+获得了优秀成员称号～✌️
+
+### 中午 返程
+怀念3天不到的学农生活呢
+真的学到了好多！
+特别是我们的茶叶还有请求烧制的陶罐 都是可以返校获取的哦
+学到了也赚到了 嘿嘿
+![IMG_0153](https://github.com/Puurestar/Memorial-of-Xuenong/assets/105161692/9cee65b7-73b7-44c8-8788-1d22e7a9458d)
+
+
+📷随手拍下的长江江景 雾蒙蒙的（）
